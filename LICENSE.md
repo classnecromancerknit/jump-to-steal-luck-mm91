@@ -1,4 +1,4 @@
-#  
+#  stealth jump to steal lucky blocks Scripts offers the most advanced jump to steal lucky blocks Script, with unlimited stamina and fly. Perfect for
 
 
 
